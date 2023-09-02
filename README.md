@@ -10,6 +10,7 @@
                                                                                                       
 <br />
 
+### Check out my resume here [Keerti Lata](https://drive.google.com/file/d/1VVZmKu6vyqELfGQL-DAQ2muNrcjMZTP_/view)
                                                                                                        
 **About Me :)**
 
